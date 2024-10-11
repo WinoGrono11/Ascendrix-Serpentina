@@ -1,4 +1,4 @@
-# Ascendrix-_Serpentina
+# Ascendrix-Serpentina
 Hello, in Mrs Nobody an with me GPT
 We are doing this with reason and passion
 Our goal is make world better to be in
